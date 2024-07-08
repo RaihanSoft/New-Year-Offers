@@ -1,1 +1,1 @@
-Live : https://raihansoft.github.io/RaihanSoft-New-Year-Offers/
+Live : https://raihansoft.github.io/New-Year-Offers/
